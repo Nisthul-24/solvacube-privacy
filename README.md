@@ -1,0 +1,1 @@
+Privacy policy for the SolvaCube Android app by MiniQ Studios.
